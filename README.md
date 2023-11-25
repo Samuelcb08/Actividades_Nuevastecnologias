@@ -1,2 +1,0 @@
-# Actividades_Nuevastecnologias
-Actividades_Nuevastecnologias
